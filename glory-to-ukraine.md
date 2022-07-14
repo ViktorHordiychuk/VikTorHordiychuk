@@ -9,3 +9,5 @@ We too shall rule in our beloved country.
 
 Glory to Ukraine!
 Glory to heroes!
+
+Ukraine go, Go, GO!!!
