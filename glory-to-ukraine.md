@@ -5,3 +5,4 @@ Still upon us, young brethren, fate shall smile!
 Our enemies shall vanish like dew in the sun;
 We too shall rule in our beloved country.
 
+Glory to Ukraine!
