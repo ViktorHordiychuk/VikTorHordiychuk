@@ -6,3 +6,4 @@ Our enemies shall vanish like dew in the sun;
 We too shall rule in our beloved country.
 
 Glory to Ukraine!
+Glory to heroes!
